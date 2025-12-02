@@ -3,7 +3,7 @@
 Hi there! 👋 I'm Hok Sambath. 📍 Phnom Penh  | 🎓 IT & Tech  | 💼 Digital Marketing 
 🎬 Video Editor Building brands & reviewing gadgets at B-WIN TECH.
 
-- 🔭 I’m currently working TECH REVIEW and web design
+- 🔭 I’m currently working TECH REVIEW, digital marketing and web design
 - 🌱 I’m currently learning AI learning
 - 💬 Ask me about 
 - 📫 How to reach me: facebook or telegram
