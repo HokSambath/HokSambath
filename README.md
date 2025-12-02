@@ -1,6 +1,5 @@
 ## Hi there 👋
-
-Hi there! 👋 I'm Hok Sambath. 📍 Phnom Penh  | 🎓 IT & Tech  | 💼 Digital Marketing 
+I'm Hok Sambath. 📍 Phnom Penh  | 🎓 IT & Tech  | 💼 Digital Marketing 
 🎬 Video Editor Building brands & reviewing gadgets at B-WIN TECH.
 
 - 🔭 I’m currently working TECH REVIEW, digital marketing and web design
